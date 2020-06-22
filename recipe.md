@@ -11,7 +11,7 @@ Fish burger – Filet “no” Fish
 INGREDIENTS - BREADCRUMB MIX
 80 g panko breadcrumbs
 ½ tsp turmeric
-½ tsp paprika
+1 tsp paprika
 1 tbsp nutritional yeast
 ½ tsp salt
 INGREDIENTS - BREADING FOR THE BURGERS
