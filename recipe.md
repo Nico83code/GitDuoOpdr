@@ -21,7 +21,7 @@ INGREDIENTS - BREADING FOR THE BURGERS
 oil for frying
 TARTARE SAUCE
 250 g vegan mayo
-1 tsp dijon or smooth mustard
+
 4 tbsp capers
 4 tbsp gherkins
 3 tbsp chopped parsley
